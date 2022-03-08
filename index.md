@@ -3,6 +3,6 @@
 - Option in Applied Ecology
 - Dual Minor: Statistics and Biological Sciences
 
-Expected Graduation June 2022
+Expected graduation June 2022
 
 Want to learn more about my experience? Find it here!
